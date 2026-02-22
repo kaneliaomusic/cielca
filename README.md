@@ -1,5 +1,4 @@
 # Cursos Intensivos en Línea Carlo Acutis
-c.i.e.l.c.a.
 
 # negocios
 ## impuestos
