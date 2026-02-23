@@ -5,6 +5,10 @@
 
 Tom Wheelwright https://youtu.be/-cCe6sak5mc?si=lXMRJCMWRzdwqqX_
 
+# Religión
+
+EWTN - Carlo Acutis: “Estoy Contigo” | La Vida del Beato de la Eucaristía https://youtu.be/scBBoDqjpts?si=LXPTSuIo-WwC-zVO
+
 # Filosofía
 Dr. Stephen Hicks - Filosofía moderna https://youtu.be/e7-QQvhFvoU?si=_vWgl0yBfu3Kk-ci
 
